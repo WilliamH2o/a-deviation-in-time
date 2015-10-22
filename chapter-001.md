@@ -17,4 +17,4 @@ During my rest, time, as time always has, continued. Never caring, never calm, a
  
 “Thomas, Thomas”, faintly drawing closer from behind the radiating lights. Meaningless sounds ignorantly uttered by the intelligent. My thoughts merely the burning fears of emotion, and as such, all was of foreign tongue.
 
-There he was, though I did not comprehend what he was. Just a figure. An animate object my eyes chose to follow. An object emitting sounds, disconnected and discernible. He placed his hand upon my chest and quietly articulated, "Hello, Thomas."  
+There he was, though I did not comprehend what he was. Just a figure. An animate object my eyes chose to follow. An object emitting sounds, disconnected and discernible. He placed his hand upon my chest and quietly articulated, "Hello, Thomas."   
