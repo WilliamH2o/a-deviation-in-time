@@ -1,6 +1,5 @@
 # Summary
 
-* [About](README.md)
-* [Introduction](introduction.md)
-* [First Chapter](chapter1.md)
+* [I am Thomas](introduction.md)
+* [The Becoming](chapter-001.md)
 
